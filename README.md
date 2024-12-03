@@ -1,16 +1,9 @@
 # wierszyk
-Abecadło z komina spadło,
-O ziemię się wywalić,
-Rozsypało się po rogach,
-Strasznie się rąbnęło:
-I - zgubiło kropeczkę,
-H - złamało kładeczkę,
-B - zbiło sobie brzuszki,
-A - zwichnęło nóżki,
-O - jak balon pękło,
-aż się P przelękło,
-T - daszek zgubiło,
-L - do U wskoczyło,
-S - się wyprostowało,
-R - prawą nogę złamało,
-W - stanęło do góry dnem i udaje, że jest M.
+Wlazł kotek na płotek
+i mruga,
+ładna to piosenka,
+nie długa.
+Nie długa, nie krótka,
+lecz w sam raz,
+zaśpiewaj koteczku,
+jeszcze raz.
